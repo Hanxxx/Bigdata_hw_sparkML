@@ -32,14 +32,3 @@
  
 
  
-
-Submission
- Turned In!
-Oct 12, 2017 at 7:21pm (late)
-Submission Details
-Download lx2201_hl3069_hw2.pdf
-Grade: 11 (13 pts possible)
-Graded Anonymously: no
-Comments:
--10 for late submission
-Gongqian Li, Oct 29, 2017 at 12:06am
